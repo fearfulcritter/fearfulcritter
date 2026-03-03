@@ -8,7 +8,7 @@ im not a furry and it pisses me off when people assue i am bc of my cosplays.
 
 i have many intrests here are some of the many:
 
-hjd, forsaken, dod, phighting, seildirectory, rochas313, roblox args, osc, bfdi, block tales, pressure, dandys world , sfawtde, tlg, regretevator, the robloxia:untill dawn and maybe others idk,
+hjd, forsaken, dod, phighting, seildirectory, rochas313, roblox args, osc, bfdi, block tales, pressure, dandys world , sfawtde, tlg, regretevator, the robloxia:untill dawn, itzSkeet_playz and maybe others idk,
 
 ![hello-john-doe-hjd](https://github.com/user-attachments/assets/b369ab87-ce27-44f7-9ab6-0f09ad5a1688)
 
