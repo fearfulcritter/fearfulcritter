@@ -1,14 +1,1 @@
-𝓢𝔀𝓪𝓵𝓵𝓸𝔀 𝔂𝓸𝓾𝓻 𝓹𝓻𝓲𝓭𝓮 𝓸𝓻 𝓲𝓽 𝔀𝓲𝓵𝓵.
-Hello, i'm gregoriah or sebbyz i preferably go by sebbyz but gregoriah is fine too
-i am a muilti-shipper and a minor so keep this in mind.                                                                           
-
-	
-
-don't attack me because my designs of characters have tails, 
-im not a furry and it pisses me off when people assue i am bc of my cosplays.
-
-i have many intrests here are some of the many:
-
-hjd, forsaken, dod, phighting, seildirectory, rochas313, roblox args, osc, bfdi, block tales, pressure, dandys world , sfawtde, tlg, regretevator, the robloxia:untill dawn, itzSkeet_playz and maybe others idk, grace too.
-
-i don't have much to put here so this is wip.
+𝙷𝚒, 𝙸 𝚊𝚖 𝚐𝚛𝚎𝚐𝚘𝚛𝚒𝚊𝚑/𝚜𝚎𝚋𝚋𝚢𝚣. 𝙸 𝚊𝚖 𝚊 𝚖𝚞𝚕𝚝𝚒 𝚏𝚊𝚗𝚍𝚘𝚖𝚎𝚛 . 𝙸 𝚎𝚗𝚓𝚘𝚢 𝚙𝚑𝚒𝚐𝚑𝚝𝚒𝚗𝚐 𝚊𝚗𝚍 𝚘𝚝𝚑𝚎𝚛 𝚛𝚘𝚋𝚕𝚘𝚡 𝚐𝚊𝚖𝚎𝚜 𝚊𝚗𝚍 𝚊𝚛𝚐𝚜. ᴅᴏɴ' ᴛ ᴛᴀᴋᴇ ᴍʏ ᴋɪɴᴅɴᴇꜱꜱ ꜰᴏʀ ɢʀᴀɴᴛᴇᴅ. ɪᴛꜱ ɴᴏᴛ ɢɪᴠɪɴɢ ᴛᴏ ʙᴇ ᴡᴀꜱᴛᴇᴅ.
