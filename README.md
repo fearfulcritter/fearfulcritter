@@ -18,8 +18,11 @@ basic dnis.
 : asking for age , dont ask for my age i am not comfortable telling online 
 friends that. , pro/darkshippers, people who copy, back stabbers , two faced, creeps, 
 18+ and 18 year old  i prefer if I dont speak with an adult unless I know you. ,
-people who cover my pony, dont ask me to move because you want to sit where I am already at.
+people who cover my pony, dont ask me to move because you want to sit where I am .
 
-![129](https://github.com/user-attachments/assets/7c37acb3-747e-42fd-87bd-3cc072f818dd)
+
+
+![130](https://github.com/user-attachments/assets/19674ea5-6c5b-4fd3-a986-ab7dc43137ab)
+
 
 ᴀᴢᴜʀᴇ ᴄᴏʟʟᴀᴘꜱᴇᴅ, ᴡɪᴛʜ ʙʟᴏᴏᴅ ᴘᴏᴜʀɪɴɢ ꜰʀᴏᴍ ᴛʜᴇɪʀ ᴍᴏᴜᴛʜ, ᴛᴡᴏ ᴛɪᴍᴇ ᴋɴᴇʟᴛ ʙᴇꜱɪᴅᴇ ᴛʜᴇᴍ. ɪɴ ᴛʜᴇɪʀ ꜰɪɴᴀʟ ᴍᴏᴍᴇɴᴛꜱ, ᴅᴇꜱᴘɪᴛᴇ ᴛʜᴇ ᴘᴀɪɴ, ᴀᴢᴜʀᴇ ʜᴇʟᴅ ᴛʜᴇɪʀ ʜᴀɴᴅ ᴀɴᴅ ꜱᴍɪʟᴇᴅ. "ɪ ʟᴏᴠᴇ ʏᴏᴜ," ᴛʜᴇʏ ꜱᴀɪᴅ, ʙᴇꜰᴏʀᴇ ᴘᴀꜱꜱɪɴɢ ᴀᴡᴀʏ.
