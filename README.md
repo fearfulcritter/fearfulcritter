@@ -20,7 +20,17 @@ friends that. , pro/darkshippers, people who copy, back stabbers , two faced, cr
 18+ and 18 year old  i prefer if I dont speak with an adult unless I know you. ,
 people who cover my pony, dont ask me to move because you want to sit where I am 
 
-
+Favorite characters in games or args or yk.
+the sonnelinos: contractee and consigliere. 
+phighting :scythe, rocket, medkit, broker
+forsaken:shedletsky,  two time, elliot
+admins: clockwork, shedletsky, brighteyez
+sfawtde: d3rlord3
+trud :c00lk1dd, guest , John doe
+grace: kookoo, seesay, dozer, stem
+eddsworld:no current Favorite.  
+pressure: I love sebastian so much
+sewh : builderfan
 I will add more soon until then farewell !
-
+favorite
 https://www.google.com/search?q=seesay+jumpscare&oq=&gs_lcrp=EgZjaHJvbWUqCQgAECMYJxjqAjIJCAAQIxgnGOoCMgkIARAjGCcY6gIyCQgCECMYJxjqAjIJCAMQIxgnGOoCMgkIBBAjGCcY6gIyCQgFECMYJxjqAjIJCAYQIxgnGOoCMgwIBxAjGCcY6gIY8AUyCQgIEC4YJxjqAjIJCAkQIxgnGOoCMgkIChAjGCcY6gIyCQgLECMYJxjqAjIJCAwQIxgnGOoCMgwIDRAjGCcY6gIY8AUyCQgOECMYJxjqAtIBBi0xajBqN6gCD7ACAfEFpSEve_P5XHvxBaUhL3vz-Vx7&client=tablet-android-charter-us-revc&sourceid=chrome-mobile&ie=UTF-8&safe=active&ssui=on
