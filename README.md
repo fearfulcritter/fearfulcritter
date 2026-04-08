@@ -30,26 +30,4 @@ people who cover my pony, dont ask me to move because you want to sit where I am
 
 
 
-Favorite characters in games or args or yk.
-
-the sonnelinos: contractee and consigliere. 
-
-phighting :scythe, rocket, medkit, broker
-
-forsaken:shedletsky,  two time, elliot
-
-admins: clockwork, shedletsky, brighteyez
-
-sfawtde: d3rlord3
-trud :c00lk1dd, guest , John doe
-
-
-grace: kookoo, seesay, dozer, stem
-
-eddsworld:no current Favorite.  
-
-pressure: I love sebastian so much
-
-sewh : builderfan
-
-I will add more soon until then farewell!
+farewell!
