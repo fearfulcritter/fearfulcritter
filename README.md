@@ -20,6 +20,9 @@ friends that. , pro/darkshippers, people who copy, back stabbers , two faced, cr
 18+ and 18 year old  i prefer if I dont speak with an adult unless I know you. ,
 people who cover my pony, dont ask me to move because you want to sit where I am 
 
+ 
+ <img width="1024" height="440" alt="139" src="https://github.com/user-attachments/assets/016467ec-e8ac-449a-8c4b-45da89fe1c1f" />
+
 Favorite characters in games or args or yk.
 the sonnelinos: contractee and consigliere. 
 phighting :scythe, rocket, medkit, broker
