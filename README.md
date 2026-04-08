@@ -26,6 +26,7 @@ people who cover my pony, dont ask me to move because you want to sit where I am
  
  <img width="1024" height="440" alt="139" src="https://github.com/user-attachments/assets/016467ec-e8ac-449a-8c4b-45da89fe1c1f" />
 
+   𝓛𝓮𝓽'𝓼 𝓷𝓸𝓽 𝓭𝓸 𝓽𝓱𝓪𝓽 𝓪𝓰𝓪𝓲𝓷."
 
 
 
