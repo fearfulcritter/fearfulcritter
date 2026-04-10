@@ -4,11 +4,12 @@
    -multifandomer!
    
    -multishipper!
-    -asexual. 
+   
+   -asexual
+    
+   -medkits fan
 
 
-
-   𝓛𝓮𝓽'𝓼 𝓷𝓸𝓽 𝓭𝓸 𝓽𝓱𝓪𝓽 𝓪𝓰𝓪𝓲𝓷."
 
 
 
