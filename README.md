@@ -4,4 +4,5 @@
 
 see the clock, its still ticking john, hurry up dude/j
 
-<details>
+<details> 
+welcome i am kookoo! (sebby/sebastian  or gregoriah)
