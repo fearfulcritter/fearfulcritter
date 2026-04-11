@@ -8,3 +8,4 @@ see the clock, its still ticking john, hurry up dude/j
 welcome i am kookoo! (sebby/sebastian  or gregoriah)
 
 <summary></summary          >  I am asexual, a muiltifandomer,muiltishipper, a big fan of kookoo and medkit.
+<grace></grace>
