@@ -1,9 +1,9 @@
 
-![143](https://github.com/user-attachments/assets/023c4a89-935c-4444-97a1-03d80544c6ec) 
+![155](https://github.com/user-attachments/assets/b2bd3af3-fe31-4c13-af98-3303789b580a)
 
 
 
-see the clock, its still ticking john, hurry up dude/j
+Oh, im smiling all right. GRINNING ear to ear.
 
 <details> 
 welcome i am kookoo! (sebby/sebastian  or gregoriah)
