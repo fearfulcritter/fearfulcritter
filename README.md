@@ -10,6 +10,7 @@ I always allow c*h just dont if my name says dnc*h ik that's not usually used bu
 bro dont ragebait please I'll break those knee caps of yours brah. 
 
 INTERACTION.
+
 when c*h I may be a bit confused so remind me if I am ok!
 dont boop me I will ignore you, 
 kissing me because you like my pony or your my friend is 😁😁😁😁
