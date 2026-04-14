@@ -14,18 +14,20 @@ when c*h I may be a bit confused so remind me if I am ok!
 dont boop me I will ignore you, 
 kissing me because you like my pony or your my friend is 😁😁😁😁
 
-<fandoms>
+MY PERSONALITY.
 
-![23](https://github.com/user-attachments/assets/70adc0bf-8e05-4210-81f7-161e53c0a1a0)
+ok, so this may be cringe but ok.
+I have social anxiety so like if I stay silent it's because I have severe anxiety so like bare with me.
+I like drawing and when you get to know me I'm Coolio. 😌 
+if you friend me and stay offline for a thousand years I'ma unfriended you.
+I already have people in my pt friend list who have 382
+days and 367 days.
 
-<summary></summary>
-whoever made this you are my friend now
-
-
-
-<details>
-  
-heyo, I'm Sebastian/sebbyz or gregoriah. I have many fandoms and I got a at channel that sucks.
-I'd what to say so I'll finish later!
+MY FAVORITE THINGS.
+cookies, medkit, medkit, medkit,medkit,medkit, scythe, rocket, sword, bee, phighting, phighting,phighting ,phighting phighting , eddsworld, jackstauber 😁😁😁 i got more but too much. 
 
 
+I'm trying to use periods in my sentences so like if i seem sad I'll tell you.
+
+
+fare well friend!
