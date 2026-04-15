@@ -1,7 +1,8 @@
 Anyway, hey I'm sebby or gregoriah, i made this specifically for pony town since it has no other use to me since my discord hates everything and doesn't want to connect anything to my dc account.
 let's get started with boundaries shall we?
 
-<img width="225" height="225" alt="159" src="https://github.com/user-attachments/assets/2ec3e01759f-45f8-aed4-5a53622f50a6" />
+<img width="225" height="225" alt="159" src="https://github.com/user-attachments/assets/08fa8c2a-bd98-413b-9462-0fa530759607" />
+
 
 
 
