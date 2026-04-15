@@ -1,9 +1,15 @@
 Anyway, hey I'm sebby or gregoriah, i made this specifically for pony town since it has no other use to me since my discord hates everything and doesn't want to connect anything to my dc account.
 let's get started with boundaries shall we?
 
+<img width="225" height="225" alt="159" src="https://github.com/user-attachments/assets/2ec3e01759f-45f8-aed4-5a53622f50a6" />
+
+
+
 
 
 BOUNDARIES!!!! 
+
+
 
 I dont have any just dont be mean to me I'm overly sensitive and I have a lot of things going on in my life so please dont be rude! :<
 I always allow c*h just dont if my name says dnc*h ik that's not usually used but now it is >:D . 
