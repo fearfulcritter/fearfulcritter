@@ -1,4 +1,5 @@
 Anyway, hey I'm sebby or gregoriah, i made this specifically for pony town since it has no other use to me since my discord hates everything and doesn't want to connect anything to my dc account.
+
 let's get started with boundaries shall we?
 
 <img width="204" height="192" alt="164" src="https://github.com/user-attachments/assets/d095759a-0cbd-460b-a361-5f86030b6c08" />
@@ -34,7 +35,7 @@ I already have people in my pt friend list who have 382
 days and 367 days.
 
 MY FAVORITE THINGS.
-cookies, medkit, medkit, medkit,medkit,medkit, scythe, rocket, sword, bee, phighting, phighting,phighting ,phighting phighting , eddsworld, jackstauber 😁😁😁 i got more but too much. 
+cookies, medkit, medkit, medkit,medkit,medkit, scythe, rocket, sword, bee, phighting, phighting,phighting ,phighting phighting , eddsworld, jackstauber , jason , jason and jason 😁😁😁 i got more but too much. 
 
 
 I'm trying to use periods in my sentences so like if i seem sad I'll tell you.
