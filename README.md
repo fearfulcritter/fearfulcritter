@@ -1,4 +1,9 @@
-Anyway, hey I'm sebby or gregoriah, i made this specifically for pony town since it has no other use to me since my discord hates everything and doesn't want to connect anything to my dc account.
+Anyway, hey I'm sebby or gregoriah, i made this specifically for pony town since it has
+
+no other use to me since my discord hates 
+everything and doesn't want to connect
+
+anything to my dc account.
 
 let's get started with boundaries shall we?
 
