@@ -24,15 +24,21 @@ I dont have any just dont be mean to me I'm overly sensitive and I have a lot of
 I always allow c*h just dont if my name says dnc*h ik that's not usually used but now it is >:D . 
 bro dont ragebait please I'll break those knee caps of yours brah. 
 
+
+
 # INTERACTION.
 
 when c*h I may be a bit confused so remind me if I am ok!
 dont boop me I will ignore you, 
 kissing me because you like my pony or your my friend is 😁😁😁😁
 
+
+
 # MY PERSONALITY.
 
+
 ok, so this may be cringe but ok.
+
 I have social anxiety so like if I stay silent it's because I have severe anxiety so like bare with me.
 I like drawing and when you get to know me I'm Coolio. 😌 
 if you friend me and stay offline for a thousand years I'ma unfriended you.
@@ -40,6 +46,8 @@ I already have people in my pt friend list who have 382
 days and 367 days.
 
 # MY FAVORITE THINGS.
+
+
 cookies, medkit, medkit, medkit,medkit,medkit, scythe, rocket, sword, bee, phighting, phighting,phighting ,phighting phighting , eddsworld, jackstauber , jason , jason and jason 😁😁😁 i got more but too much. I love pvc and black sapphire 😁😁😁
 
 
