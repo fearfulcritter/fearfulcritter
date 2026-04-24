@@ -10,11 +10,8 @@ anything to my dc account.
 
 let's get started with boundaries shall we?
 
-<img width="204" height="192" alt="164" src="https://github.com/user-attachments/assets/d095759a-0cbd-460b-a361-5f86030b6c08" />
+<img width="174" height="200" alt="191" src="https://github.com/user-attachments/assets/e2bd18ee-c40c-4334-b569-6a593266df7c" />
 
-
-
-https://www.google.com/search?client=tablet-android-charter-us-revc&hs=DSlp&sca_esv=e42243e293ad428e&sxsrf=ANbL-n7ndIcIv9ERVMCU9ldSrVD6AYJ73g:1776993873286&udm=2&fbs=ADc_l-aN0CWEZBOHjofHoaMMDiKpaEWjvZ2Py1XXV8d8KvlI3vWUtYx0DZdicpfE1faGYek-FGtKxD7AwCl01PyIDDoh3JcXAiS5pTxB6RsrrZG4swMNBsuh4Ofkws4KxGh5aFU0UwDVD43rNrLtQp4ciaD-4jfMEecFkBsgebaCZEDngqsXfY1pbwapid9CvhSq0TiwRtorAuzsz88tZkJTC3IrrCjxwA&q=black+sapphire+gif&sa=X&ved=2ahUKEwiugteEqoWUAxX1kyYFHUkWNs0QtKgLegQIFRAB&biw=824&bih=1143&dpr=2.13&safe=active&ssui=on#sv=CAMSXhoyKhBlLVR3X0UtUTQtNFRobDhNMg5Ud19FLVE0LTRUaGw4TToOZFdvNnNYeGhGZFVuYk0gBCokCg5kb2RPa0dYdWVJUWtmTRIQZS1Ud19FLVE0LTRUaGw4TRgAMAEYByCo2dykDUoIEAEYASABKAE
 
 
 
