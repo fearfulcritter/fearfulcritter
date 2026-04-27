@@ -5,6 +5,8 @@
 
 <summary>ɪɴᴛʀᴏᴅᴜᴄᴛɪᴏɴ.
 
+
+
 hello, I am Sebastian/sebbyz or gregoriah.
 I am here to discuss the many rules and boundaries of me.
 
@@ -28,3 +30,4 @@ if I have dni on i wish for only friends to speak to me but c*h is still ok.
 # ᴊᴏᴜʀɴᴀʟ ᴇɴᴛʀʏ//3 🗡.
 
 boundaries 
+
