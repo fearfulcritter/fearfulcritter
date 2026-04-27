@@ -46,3 +46,4 @@ don't force me to be friends with your friends if I don't know or like them.
 # clarification.
 if someone has a read me similar to mine I'm sorry I was trying to like make the journal 
 d3rlord3 wrote.
+Typed.js
