@@ -9,7 +9,7 @@ hello, I am Sebastian/sebbyz or gregoriah.
 I am here to discuss the many rules and boundaries of me.
 
 
-<summary>I do wishful you to respect them too.
+I do wishful you to respect them too.
 
 
 # ᴇɴᴛʀʏ//2 ⚔️.
@@ -22,7 +22,7 @@ please don't boop unless I happen to know or you are a close friend.
 have c*h on every time so you may want to check my read me if you want to c*h. 
 don't disrespect my friends.
 if I have dni on i wish for only friends to speak to me but c*h is still ok.
-<summary I may add to this soon. 
+ I may add to this soon. 
 
 
 # ᴊᴏᴜʀɴᴀʟ ᴇɴᴛʀʏ//3 🗡.
