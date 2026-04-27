@@ -18,10 +18,10 @@ The rules.
 
 <summary>please don't boop unless I happen to know or you are a close friend.
 
-I have c*h on every time so you may want to check my read me if you want to c*h. 
+<summary>have c*h on every time so you may want to check my read me if you want to c*h. 
 don't disrespect my friends.
 if I have dni on i wish for only friends to speak to me but c*h is still ok.
-I may add to this soon. 
+<summary ></summary>I may add to this soon. 
 
 
 # ᴊᴏᴜʀɴᴀʟ ᴇɴᴛʀʏ//3 🗡.
