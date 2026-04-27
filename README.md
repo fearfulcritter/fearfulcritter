@@ -1,4 +1,4 @@
-# ᴊᴏᴜʀɴᴀʟ ᴇɴᴛʀʏ//1. 📖
+# ᴊᴏᴜʀɴᴀʟ /ᴇɴᴛʀʏ//1. 📖
 
 
 
@@ -14,7 +14,9 @@ I am here to discuss the many rules and boundaries of me.
 I do wishful you to respect them too.
 
 
-# ᴇɴᴛʀʏ//2 ⚔️.
+# Journal /ᴇɴᴛʀʏ//2 ⚔️.
+
+
 
 
 <summary>The rules.
