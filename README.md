@@ -16,7 +16,7 @@ I do wishful you to respect them too.
 
 The rules.
 
-please don't boop unless I happen to know or you are a close friend.
+<summary>please don't boop unless I happen to know or you are a close friend.
 
 I have c*h on every time so you may want to check my read me if you want to c*h. 
 don't disrespect my friends.
@@ -25,3 +25,5 @@ I may add to this soon.
 
 
 # ᴊᴏᴜʀɴᴀʟ ᴇɴᴛʀʏ//3 🗡.
+
+boundaries 
