@@ -32,5 +32,15 @@ if I have dni on i wish for only friends to speak to me but c*h is still ok.
 
 # ᴊᴏᴜʀɴᴀʟ ᴇɴᴛʀʏ//3 🗡.
 
-boundaries 
+boundaries.
+
+don't go straight into getting comfortable with me. I will be anxious and won't say anything. 
+I'm not going to tell you if I feel some way. I don't frequently justify how I feel so its best if you don't ask.
+
+don't force yourself onto me.
+
+
+don't force me to be friends with your friends if I don't know or like them.
+
+
 
