@@ -17,7 +17,7 @@ I do wishful you to respect them too.
 # ᴇɴᴛʀʏ//2 ⚔️.
 
 
-The rules.
+<summary>The rules.
 
 please don't boop unless I happen to know or you are a close friend.
 
