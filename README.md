@@ -1,6 +1,11 @@
 # ᴊᴏᴜʀɴᴀʟ /ᴇɴᴛʀʏ//1. 
 
 
+![72](https://github.com/user-attachments/assets/54335825-8388-4a78-afa1-3983029f4bda)
+
+
+
+
 hello, I am Sebastian/sebbyz or gregoriah.
 I am here to discuss the many rules and boundaries of me.
 
